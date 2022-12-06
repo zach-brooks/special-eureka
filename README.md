@@ -6,8 +6,8 @@ the detritus of a coming war
 amor fati
 
 
-
-its the prettty boy/girls versus the petty boys/girls
+minding mine 
+surviving narcissism 
 
 
 
